@@ -1,7 +1,4 @@
-- 👋 Hi, I’m @Forestkeeperio.lens (:D, :D)
-- 👀 I’m interested in Web3
-- 🌱 I’m currently learning Solidity
-
-🔥 𝕊preading love, one block at a time 🧙🏽‍♂️ Ξ
-DMs always open. #bloomer
-🔺🐯🪙linktr.ee/forestkeeperio
+Satoshi's less successful cousin 🧙🏽‍♂️
+In data we trust; in memes we thrive 🚀
+buidlr @polkadot
+dmm @distractive.xyz
